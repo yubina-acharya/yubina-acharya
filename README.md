@@ -43,4 +43,4 @@ Based in Dallas-Fort Worth, TX.
 
 ---
 
-*Currently open to AI/ML and software engineering roles — feel free to reach out!*
+*Currently open to AI/ML and software engineering roles!! Feel free to reach out!*
